@@ -6,9 +6,9 @@ https://docs.google.com/spreadsheets/d/1y6r9WXb2a9FA0KxBa__Y3LriUq8_KHakMViJ2irY
 
 
 Resource Icons:
-Akiko Icon: made by Angilian (me)
-Emi Icon: made by Angilian (me)
-Sakura Icon: made by Angilian (me)
-Miyuki Icon: made by Angilian (me)
+- Akiko Icon: made by Angilian (me)
+- Emi Icon: made by Angilian (me)
+- Sakura Icon: made by Angilian (me)
+- Miyuki Icon: made by Angilian (me)
 
 https://www.instagram.com/angelicangilian/?hl=en character image taken from here and renamed to fit the plot.
