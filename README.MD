@@ -6,13 +6,9 @@ https://docs.google.com/spreadsheets/d/1y6r9WXb2a9FA0KxBa__Y3LriUq8_KHakMViJ2irY
 
 
 Resource Icons:
+Akiko Icon: made by Angilian (me)
+Emi Icon: made by Angilian (me)
+Sakura Icon: made by Angilian (me)
+Miyuki Icon: made by Angilian (me)
 
-Meat icon: Lorc https://lorcblog.blogspot.com/ under CC BY 3.0
-Carrot Icon: Delapouite https://delapouite.com/ under CC BY 3.0
-
-
-Van Gogh: Foto van een zelfportret van Vincent van Gogh, https://commons.wikimedia.org/wiki/File:Foto_van_een_zelfportret_van_Vincent_van_Gogh,_Bestanddeelnr_255-9139.jpg, Public Domain
-
-Légumes: https://commons.wikimedia.org/wiki/File:L%C3%A9gumes_01.jpg, Public Domain
-
-Squirrel by Tfbybyhf: https://commons.wikimedia.org/wiki/File:Squirrel_on_a_Branch.jpg  Public Domain
+https://www.instagram.com/angelicangilian/?hl=en character image taken from here and renamed to fit the plot.
